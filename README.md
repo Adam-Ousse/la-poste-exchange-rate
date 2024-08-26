@@ -1,0 +1,2 @@
+# la poste exchange rate
+ 
